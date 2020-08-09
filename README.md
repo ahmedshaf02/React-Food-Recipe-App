@@ -35,5 +35,5 @@
 
 ## Details
 
-### to see complete recipe please go to full recipe
+### to see complete recipe please go to see full recipe site
 
